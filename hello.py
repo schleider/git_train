@@ -1,1 +1,1 @@
-This is the story about a gut called yaya
+This is the story about a guy called ed
